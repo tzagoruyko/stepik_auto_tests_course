@@ -3,4 +3,4 @@
 https://stepik.org/course/575/syllabus
 
 UPD 10.03.2025
-
+2!
